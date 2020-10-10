@@ -1,0 +1,2 @@
+# trigonometria
+como resolver ejercicios
